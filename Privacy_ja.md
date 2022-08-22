@@ -57,4 +57,4 @@ https://www.google.com/policies/privacy/
 
 お問い合わせ
 
-私のプライバシーポリシーについての質問や提案がある場合は、oishocoffee@hotmail.comに私に連絡することを躊躇しないでください。
+私のプライバシーポリシーについての質問や提案がある場合は、oishicoffee@hotmail.comに私に連絡することを躊躇しないでください。
