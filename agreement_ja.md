@@ -42,4 +42,4 @@ j. 本使用許諾契約およびお客様によるライセンスアプリケ�
 最終更新日：2022年8月22日
 ライセンサー（ライセンスアプリーケーションの開発者）に関する情報
 ・名称： Marushin Solutions
-・連絡先： oishocoffee@hotmail.com
+・連絡先： oishicoffee@hotmail.com
