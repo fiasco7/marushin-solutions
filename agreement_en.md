@@ -26,4 +26,4 @@ j. The laws of the State of California, excluding its conflicts of law rules, go
 Last updated August 22 2022
 Information regarding the Licensor (Licensed Application provider)
 Name: Marushin Solutions
-Contact : oishocoffee@hotmail.com
+Contact : oishicoffee@hotmail.com
